@@ -1,2 +1,5 @@
 # satoshingmx-global-online-or-off-line-digital-secure-wallets-by-confirmation-on-wallets-III
+<"Create,CODE">="AI Self learning machine global online and offline  Internet wallets Banking and  money monetary system, with high knowledge on retrieve account wallets emails exc with the request form information and using system to system without human interference meaning  using the fallowings to use as processing code for my creatiin
 The bank of online and off line for digital wallets Identity, Information, Initials, cryptobiometrics, cryptophonemetrics, cryptographic, cryptography +SHA256
+gitignore ignore all changes or add on or coping or any editing is locked and confirmed by the main master creator to block GitHub in allowing changes add ons and exc. As only the creator using the user name and must be longed in at the website log in to be able to make any changes or updates or exc. 
+Run a cryptographic, cryptography, cryptobiometrics, by system to system with out human interference.> 
